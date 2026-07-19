@@ -38,4 +38,4 @@
 
 
 ## 📫 Контакты
-*   **Email**: shohle_jalyuz@mail.ru
+*   **Email**: se.rahmanova@gmail.com
